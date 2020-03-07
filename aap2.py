@@ -1,0 +1,7 @@
+idddqq
+q
+:
+
+/a/
+dxmcslkmcsa
+
